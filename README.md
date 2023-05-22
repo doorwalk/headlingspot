@@ -1,1 +1,1 @@
-# headlingspot
+# healingspot
